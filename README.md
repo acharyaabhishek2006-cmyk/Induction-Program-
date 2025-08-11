@@ -49,8 +49,9 @@ Dr. Arvind Dhingra told us about GNDEC’s student clubs, activities, and variou
 
 Later we had a english and mathematics proficiency tests of 30 marks.
 
-Day - 3
-Date - 4 August 2025
+# Day - 3
+# Date - 4 August 2025
+
 A new day starts with Harpreet Grewal Mam by reciting prayers and a speech later on in which she told us about the rest faculties and clubs.
 
 Interaction with members of causmic club
