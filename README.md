@@ -70,3 +70,18 @@ The day stats with Sir Gautam Murria on the topic 'Motorsports'. He told us abou
 
 ### Millets :- A superfood
 we had a session on 'Millets Superfood' which was given to us by Shaffy Makkar. She told about different types of millets and their importance in building body. she also told us about the traditional methods of cooking millets so that it can act as a doctor for our body. She encouraged us to bring back millet based meals in our diets for our good health.
+
+# Day - 5
+# Date - 6 August 2025
+
+Lecture by Dean of student welfare
+Dr. Parminder Singh begun with the session by telling us about different student facilities available in college. He told us about library resources, health services, different kinds of activities, etc. available in our college.
+
+## Fitness for engineers
+
+One of the most prosperous and glorious lecture by Mr. Manpreet singh. He told us about importance of regular exercise and a healthy lifestyle. We talked about steroids, protein supplements and many students ask their doubts. We also had a push-up competition on stage, which was very funny.
+
+## Session by NCC
+After fitness, we had a session related to National Cadet Corps(NCC) and opportunities to serve in the armed forces which was given by Brigadier P.S. Cheema. He told us about the importance of discipline and building a strong mindset and leadership qualities.
+
+In second half of the college we had some classes like P2P and english by professor Nisha Mam.
