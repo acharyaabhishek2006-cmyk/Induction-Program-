@@ -36,8 +36,9 @@ Dr. Arvind Dhingra told us about GNDEC’s student clubs, activities, and variou
 
 Later we had a english and mathematics proficiency tests of 30 marks.
 
-Day - 2
-Date - 1 August 2025
+# Day - 2
+# Date - 1 August 2025
+
 The day begins with prayers. After that Dr. Harpreet Kaur Grewal told us the importance of meditation and make aware about the environment of the campus.
 
 UHV Session - 1
