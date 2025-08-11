@@ -94,3 +94,12 @@ The session was given to us by Dr. Lakhvir Singh Khanna on CML. The session was 
 
 ## Session on National Service Scheme
 Dr. Jasvir Singh Grewal gave us lecture on NSS. The session was very energetic and funny telling us about social responsibility of a students and make us learn how to make a person laugh which gives us mental peace. later on our seniors showed a scene play of a story to make us laugh which was very good and can't be explained in words.
+
+# Day - 7
+# Date - 8 August 2025
+## Introduction to engeneering drawings
+Professor Manmohan singh told us about perspective of drawing in engineering and made us aware about the marking scheme in MST and EST.
+
+After the engeneering drawing we had a workshop of carpentry in which professor told us about the different woods found in different parts of country it was very interactive session.
+
+Then again a it was an end of a golden time period that was our induction program.
