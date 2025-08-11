@@ -61,3 +61,12 @@ UHV Session - 2
 Dr. Priya darshani Mam delivered her second lecture on human values by beautifully explaining the different perspectives of live which ultimately ends on being happy and life full of comforts.
 
 Later on we had a session with professor jaswant singh reminding us to feel free to share our thoughts even if our answers may seem right or wrong.
+
+# Day - 4
+# Date - 5 August 2025
+## Introduction to Motorsports
+
+The day stats with Sir Gautam Murria on the topic 'Motorsports'. He told us about F1 racings and rule followed by pit crew and racers. He explained about even the smaallest bolts and finnest and turbo engines that they should very fine and accurate to race otherwise they can met an accident. He also spoke about RC cars that we can design and build in college for competitions using Arduino.
+
+### Millets :- A superfood
+we had a session on 'Millets Superfood' which was given to us by Shaffy Makkar. She told about different types of millets and their importance in building body. she also told us about the traditional methods of cooking millets so that it can act as a doctor for our body. She encouraged us to bring back millet based meals in our diets for our good health.
