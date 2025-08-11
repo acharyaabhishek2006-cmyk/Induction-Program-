@@ -48,3 +48,15 @@ Session by Dr. Arvind Dhingra Sir
 Dr. Arvind Dhingra told us about GNDEC’s student clubs, activities, and various opportunities. We also played a team game where 7 girls and 7 boys were called on stage, grouped into teams, and competed and the winning team was rewarded with chocolates.
 
 Later we had a english and mathematics proficiency tests of 30 marks.
+
+Day - 3
+Date - 4 August 2025
+A new day starts with Harpreet Grewal Mam by reciting prayers and a speech later on in which she told us about the rest faculties and clubs.
+
+Interaction with members of causmic club
+A lecture was delivered by the members of causmic club in which the told us about the annual ceremonies and fest conducted by the college and their role in organizing events and fundraising.
+
+UHV Session - 2
+Dr. Priya darshani Mam delivered her second lecture on human values by beautifully explaining the different perspectives of live which ultimately ends on being happy and life full of comforts.
+
+Later on we had a session with professor jaswant singh reminding us to feel free to share our thoughts even if our answers may seem right or wrong.
