@@ -24,3 +24,14 @@ Department visiting
 After formal welcome, we were guided to our respective departments.
 
 Their they introduce us about facilities, labs, curriculum structure, and faculty mentors and told us that we can contact them anytime when needed.
+Day - 2
+Date - 1 August 2025
+The day begins with prayers. After that Dr. Harpreet Kaur Grewal told us the importance of meditation and make aware about the environment of the campus.
+
+UHV Session - 1
+We had a session on Universal Human Values which was given by Dr. Priya Darshani, in which she asked us to think deeply about our goals, life purpose, and aspirations. She also ask some questions to us that what we suffer from like overthinking fear of failure and many more.
+
+Session by Dr. Arvind Dhingra Sir
+Dr. Arvind Dhingra told us about GNDEC’s student clubs, activities, and various opportunities. We also played a team game where 7 girls and 7 boys were called on stage, grouped into teams, and competed and the winning team was rewarded with chocolates.
+
+Later we had a english and mathematics proficiency tests of 30 marks.
