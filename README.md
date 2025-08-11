@@ -10,7 +10,8 @@ Registration No.- 25103878
 
 # Day 1
 # 30 july,2025
-Spiritual inauguration
+## Spiritual inauguration
+
 The day began with a peaceful Kirtan session at the college Gurudwara Sahib, to welcome us.
 
 Dr. Harpreet Kaur Grewal (HoD of Applied Sciences Dept.) gave a warm welcome to the new batch in auditorium.
