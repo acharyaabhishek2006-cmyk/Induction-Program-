@@ -9,7 +9,7 @@ Branch- (Robotics and AI)
 Registration No.- 25103878
 
 # Day 1
-# 30 july,2025
+# Date - 30 july,2025
 ## Spiritual inauguration
 
 The day began with a peaceful Kirtan session at the college Gurudwara Sahib, to welcome us.
